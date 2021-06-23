@@ -1,1 +1,1 @@
-My Portfolio😉(not formal tho)
+My Portfolio😉
